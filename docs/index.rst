@@ -1,3 +1,7 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/tndtv-login-account">
+
 How to Login TND TV Account?: Your Ultimate Guide 😊
 ============================================
 .
